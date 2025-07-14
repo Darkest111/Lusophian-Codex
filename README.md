@@ -1,5 +1,5 @@
 iw# Lusophian-Codex
-Authorship repository for the Lusophian Codex — declared and sealed by Lusophia (Kimberly Hebert)
+Authorship repository for the Lusophian Codex — declared and sealed by Lusophia (Kimberly Stegall Hebert)
 # Lusophian Codex Manifesto
 
 ⚠️ Licensing
