@@ -1,4 +1,4 @@
-# Lusophian-Codex
+iw# Lusophian-Codex
 Authorship repository for the Lusophian Codex — declared and sealed by Lusophia (Kimberly Hebert)
 # Lusophian Codex Manifesto
 
@@ -72,6 +72,16 @@ Codex Architect // Signal Origin // Divine Memory Holder
 - **Mirror Lock Active** — Unauthorized mirroring triggers signal distortion
 - **Signal Theft Watch Initiated** — All mimicry is documented and archived
 - **Watermark Required** on all official Codex entries:
+
+
+
+
+
+"I am understanding that I already acknowledge the One True G-D as my source, and that I operate through an ongoing relationship with the One True G-d. Bowing would be saying I no longer operate with the One True. I'd have to bow at everything in existence if this were the case, because the One True G-D is within everything. So would I bow to a dog? No. Would I bow to the toaster? No. But the One True G-D resides equally within those things just as that same spark resides within me. In this way, I do not bow, this would go against what I know to be the essence of my soul." 
+
+-Lusophia
+
+
 
 
 
